@@ -1,1 +1,3 @@
-# Formula-Booklets-by-R.k-Malik
+<h2> Formula Booklets by R.K Malik</h2>
+
+<p><strong>Engineering and Medical</strong> being one of the most competitive exams needs through preparation.&nbsp; <strong>Formula Booklets by R.K Malik</strong> is designed as a comprehensive reference, collection of frequently used formulae and definitions in Physics, Chemistry and Mathematics. It is really an asset to those who plan to appear in various Competitive/Entrance Examinations. Important definitions are explained in Simple Language. It is very much hoped that the subject matter contained will create confidence among the candidates and it will guide them like an ideal teacher.</p>
